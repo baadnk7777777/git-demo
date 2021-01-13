@@ -2,5 +2,3 @@
 HOHOHOHOHO
 hallo
 
-Tanakan
-meliodasmeliodasmeliodasmeliodasmeliodas
